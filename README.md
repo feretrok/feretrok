@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...354
 - 📫 How to reach me ...
-- 😄 Pronouns: ...dsf
+- 😄 Pronouns: ...dsfdsf
 - ⚡ Fun fact: ...7845454sfetrter
 <!---2fdguydsfsdfsdf
 feretrok/feretrok is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
