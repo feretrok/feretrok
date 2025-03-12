@@ -1,7 +1,7 @@
 htyhyytdfdfjhgxbv- 👋 Hi, I’m @feretrok
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...3546236363hjmbgfdfv
+- 💞️ I’m looking to collaborate on ...3546236363hjmbgfdfvvx
 - 📫 How to reach me ...41152tkjujjhghjgfgrezxczxcczxmjhbn
 - 😄 Pronouns: ...dsfdsf;;cxvgeegr
 - ⚡ Fun fact: ...7845454sfetrtererwew2625dfdfxcvlkjkhdbfuikvfd
