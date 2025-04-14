@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...3546236363hjmbgfdfvvxerterqqqwd
 - 📫 How to reach me ...41152tkjujjhghjgfgrezxczxcczxmjhbnvbvbvbaaz
-- 😄 Pronouns: ...dsfdsf;;cxvgeegrdfvfd532232
+- 😄 Pronouns: ...dsfdsf;;cxvgeegrdfvfd532232nhbvb
 - ⚡ Fun fact: ...7845454sfetrtererwew2625dfdfxcvlkjkhdbfuikvfdewfefew562
 <!---2fdguydsfsdfsdfvdfdsdsfile) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.53zxsd666996rtytyrfdgdfgd
