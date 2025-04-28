@@ -1,4 +1,4 @@
-werw3bnmnbmsddssdjddhtyhyytdfdfjhgxbv- 👋 Hi, I’m @feretrok
+gwerw3bnmnbmsddssdjddhtyhyytdfdfjhgxbv- 👋 Hi, I’m @feretrok
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...3546236363hjmbgfdfvvxerterqqqwdzcxzcx
@@ -7,7 +7,7 @@ werw3bnmnbmsddssdjddhtyhyytdfdfjhgxbv- 👋 Hi, I’m @feretrok
 - ⚡ Fun fact: ...7845454sfetrtererwew2625dfdfxcvlkjkhdbfuikvfdewfefew562dfgdf
 <!---2fdguydsfsdfsdfvdfdsdsfile) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.53zxsd666996rtytyrfdgdfgdfasasfswfefewwe
---->dsfffdrewwerwrerwerewr
+--->dsfffdrewwerwrerwerewrghjg
 dssssfhg
 365cvb
 hgg
