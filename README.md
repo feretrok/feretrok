@@ -2,7 +2,7 @@ gwerw3bnmnbmsddssdjddhtyhyytdfdfjhgxbv- 👋 Hi, I’m @feretrok
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...3546236363hjmbgfdfvvxerterqqqwdzcxzcxrggrrr
-- 📫 How to reach me ...41152tkjujjhghjgfgrezxczxcczxmjhbnvbvbvbaazоаппаоgr
+- 📫 How to reach me ...41152tkjujjhghjgfgrezxczxcczxmjhbnvbvbvbaazоаппаоgrwecbbg
 - 😄 Pronouns: ...dsfdsf;;cxvgeegrdfvfd532232nhbvb
 - ⚡ Fun fact: ...7845454sfetrtererwew2625dfdfxcvlkjkhdbfuikvfdewfefew562dfgdfwffwfwe
 <!---2fdguydsfsdfsdfvdfdsdsfile) appears on your GitHub profile.gfffwfeewfwed
