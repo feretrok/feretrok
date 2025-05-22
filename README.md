@@ -1,5 +1,5 @@
 gwerw3bnmnbmsddssdjddhtyhyytdfdfjhgxbv- 👋 Hi, I’m @feretrok
-- 👀 I’m interested in ...
+- 👀 I’m interested in ...juydfd
 - 🌱 I’m currently learning ...gfdfdf
 - 💞️ I’m looking to collaborate on ...3546236363hjmbgfdfvvxerterqqqwdzcxzcxrggrrthghetgehre,ol,lk
 - 😄 Pronouns: ...dsfdsf;;cxvgeegrdfvfd532232nhbvb5626232
