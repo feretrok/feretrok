@@ -1,7 +1,7 @@
 gwerw3bnmnbmsddssdjddhtyhyytdfdfjhgxbv- 👋 Hi, I’m @feretrok
 - 👀 I’m interested in ...juydfd
 - 🌱 I’m currently learning ...gfdfdf
-- 💞️ I’m looking to collaborate on ...3546236363hjmbgfdfvvxerterqqqwdzcxzcxrggrrthghetgehre,ol,lk
+- 💞️ I’m looking to collaborate on ...3546236363hjmbgfdfvvxerterqqqwdzcxzcxrggrrthghetgehre,ol,lkcvbcvc
 - 😄 Pronouns: ...dsfdsf;;cxvgeegrdfvfd532232nhbvb5626232
 - ⚡ Fun fact: ...7845454sfetrtererwew2625dfdfxcvlkjkhdbfuikvfdewfefew562dfgdfwffwfwe
 <!---2fdguydsfsdfsdfvdfdsdsfile) appears on your GitHub profile.gfffwfeewfwedbvvvvhdggdffd
